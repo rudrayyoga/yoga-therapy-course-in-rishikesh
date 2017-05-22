@@ -1,0 +1,2 @@
+# yoga-therapy-course-in-rishikesh
+ Rudray Yogalaya offers 200 hour yoga therapy teacher training course in the foothills of the great Himalayas, Rishikesh India. This course is appropriate for Yoga practitioners, Sports Teachers, Yoga Therapist, Bachelor of Education Teachers and Fitness instructors of all levels &amp; Practitioners. The prerequisites are to become a yoga therapy teacher is your interest, practice and enthusiasm.
